@@ -8,7 +8,10 @@
 # Update
 - 01-03-2021 > bot shopee 3.3
 
-# motivasi
+# Flash Sale 3.3
+- https://shopee.co.id/Samsung-Galaxy-S20-FE-256-GB-Cloud-Orange-i.52635036.6259445668
+
+# Motivasi
 - ada harga yang harus dibayar untuk setiap karya apapun itu.
 - jangan pernah menghujat atau menghina siapapun karena belum tentu kita lebih baik dari nya.
 - jangan pernah menghargai usaha orang lain dengan 3M (Makasi Mas Mantap) apalagi dia adalah teman mu.
